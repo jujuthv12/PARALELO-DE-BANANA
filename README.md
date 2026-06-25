@@ -7,5 +7,5 @@ amo montar cubo mágico
 
 # GOSTO DE FILME DE TERROR
 
-![]https://media.tenor.com/R4n7Nlsdg9kAAAAi/uhm-scary.gif)
-![]https://media1.tenor.com/m/KRXYgNWQHUYAAAAC/happy-halloween-it.gif)
+![]https://media.tenor.com/R4n7Nlsdg9kAAAAi/uhm-scary.gif.)
+![]https://media1.tenor.com/m/KRXYgNWQHUYAAAAC/happy-halloween-it.gif.)
