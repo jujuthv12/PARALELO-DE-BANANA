@@ -1,12 +1,12 @@
-- gosto de comer🍔
+- gosto de comer 🍔
 
-- gosto de games👾🎮
+- gosto de games 👾🎮
 
-- gosto de sair📍
+- gosto de sair 📍
 
-- amo assistir videos📷
+- amo assistir videos 📷
 
-- amo montar cubo mágico🪄
+- amo montar cubo mágico 🪄
 
 - entre em contato comigo Costa.Souza.Julia@escola.pr.gov.br
 
